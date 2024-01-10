@@ -4,7 +4,7 @@
 - 5ml Butter
 - 2 Eggs
 - 60ml Corn Starch
-- 40ml Custard
+- 100ml Custard
 - 5ml Vanilla Flavour
 - Pinch of salt
 - 2 Pack of Classic Bakers Tennis Biscuits / Coconut Biscuits
