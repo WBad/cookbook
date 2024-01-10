@@ -2,7 +2,7 @@
 - 1 can of Condensed Milk
 - 3 cans of Milk
 - 5ml Butter
-- 2 Eggs
+- 3 Eggs
 - 60ml Corn Starch
 - 100ml Custard
 - 5ml Vanilla Flavour
